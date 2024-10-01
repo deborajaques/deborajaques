@@ -10,8 +10,7 @@ Meu nome é Débora Jaques
   - 📧 debora.jaques@escola.pr.gov.br
   - 📧 dkjaques@hotmail.com
   - 📞 (44) 999388616
-
-  - Conheça meu Instagram:[deborajaques_arq](https://www.instagram.com/deborajaques_arq?igsh=MTJyN2JoZ2kxZnZ2cg%3D%3D&utm_source=qr)
+  - Conheça meu Instagram: [deborajaques_arq](https://www.instagram.com/deborajaques_arq?igsh=MTJyN2JoZ2kxZnZ2cg%3D%3D&utm_source=qr)
 
 ![](https://media1.tenor.com/m/X29L3gE_cmoAAAAC/axoarq.gif)
 
